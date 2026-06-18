@@ -2,6 +2,6 @@
 
 A small indie team, based in Stockholm 🇸🇪, building **Stockholm1646**.
 
-Everything here is private — just us for now.
+Averything here is private — Check out our website here: https://ratterstudios.com/
 
 Happy ratting 🐀
